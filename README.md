@@ -216,4 +216,4 @@ Yes, the game receives regular updates to enhance its performance and introduce 
 Ready to hit the road and manage your trailer fleet? **Download 18 Wheels of Steel now and embark on your trucking adventure!**
 
 ---
-**Last updated:** 2026-11-12 06:00:01 UTC
+**Last updated:** 2026-11-12 15:01:48 UTC
